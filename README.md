@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating on inteernet
 - 🌱 I’m currently learning to problem solving skills
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me email at findsiddhesh@gmail.com
+- 📫 How to reach me email at siddhesh@siddhesh.site
 - 😄 Pronouns: HE
 - ⚡ Fun fact: ....
 
